@@ -1,2 +1,0 @@
-# ladoaladovida
-fonte
